@@ -1,1 +1,1 @@
-# páramo
+# paramo
